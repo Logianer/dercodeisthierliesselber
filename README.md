@@ -1,4 +1,5 @@
 # Never gonna give you up  
+![Rick Astley](https://c.tenor.com/o656qFKDzeUAAAAC/rick-astley-never-gonna-give-you-up.gif)   
 We're no strangers to love  
 You know the rules and so do I   
 A full commitment's what I'm thinking of   
